@@ -8,6 +8,4 @@
 
 [http://blog.yuino.ml/](http://blog.yuino.ml/)
 
-（↑ GitHub）
-
 这里是个丢日常的博客
