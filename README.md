@@ -37,3 +37,4 @@
 # 学习中
 
 [计算机基础知识教程](http://www.51zxw.net/list.aspx?cid=354)
+[计算机网络教程](http://www.51zxw.net/list.aspx?cid=376)
