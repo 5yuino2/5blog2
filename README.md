@@ -36,6 +36,4 @@
 
 # 学习中
 
-[计算机基础知识教程](http://www.51zxw.net/list.aspx?cid=354)
-[计算机网络教程](http://www.51zxw.net/list.aspx?cid=376)
-[因为遇见你](https://v.qq.com/detail/f/f2tenn0sqzh7m7b.html)
+[计算机基础知识教程](http://www.51zxw.net/list.aspx?cid=354)|[计算机网络教程](http://www.51zxw.net/list.aspx?cid=376)|[因为遇见你](https://v.qq.com/detail/f/f2tenn0sqzh7m7b.html)
