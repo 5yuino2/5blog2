@@ -4,9 +4,9 @@
 
 其他的再慢慢来
 
-[https://5yuino2.github.io/yuino/](https://5yuino2.github.io/yuino/)
+<https://5yuino2.github.io/yuino/>
 
-[http://blog.yuino.ml/](http://blog.yuino.ml/)
+<http://blog.yuino.ml/>
 
 这里是个丢日常的博客
 
@@ -36,4 +36,5 @@
 
 # 学习中
 
-[计算机基础知识教程](http://www.51zxw.net/list.aspx?cid=354)|[计算机网络教程](http://www.51zxw.net/list.aspx?cid=376)|[因为遇见你](https://v.qq.com/detail/f/f2tenn0sqzh7m7b.html)
+| :------: | :------: | :------: |
+|[计算机基础知识教程](http://www.51zxw.net/list.aspx?cid=354)|[计算机网络教程](http://www.51zxw.net/list.aspx?cid=376)|[因为遇见你](https://v.qq.com/detail/f/f2tenn0sqzh7m7b.html)|
