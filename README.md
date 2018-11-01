@@ -24,7 +24,7 @@
 |[第7集：正手奔上旋发球动作要领](https://www.bilibili.com/video/av34154099)|[平野美宇勾式勾手发球教学](https://www.bilibili.com/video/av34732490)|[第52集：乒乓球横拍反手横拨快速入门](https://www.bilibili.com/video/av23285238)|[三分钟教你掌握正手攻球拉球基础细节](https://www.bilibili.com/video/av34928084)|[第6集：正手奔下旋发球动作要领](https://www.bilibili.com/video/av341000510)|
 
 | :------: | :------: | :------: | :------: | :------: |
-|[第5集：正手奔不转发球](https://www.bilibili.com/video/av33909503)|[发出逆上旋、逆下旋关键！](https://www.bilibili.com/video/av33843829)|
+|[第5集：正手奔不转发球](https://www.bilibili.com/video/av33909503)|[发出逆上旋、逆下旋关键！](https://www.bilibili.com/video/av33843829)|[第1集：横拍握法](https://www.bilibili.com/video/av3598540)|[第2集：正手攻球的基本站位}(https://www.bilibili.com/video/av3598551)|
 
 # 将结束的九月
 
