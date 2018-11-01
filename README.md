@@ -27,7 +27,7 @@
 |[第5集：正手奔不转发球](https://www.bilibili.com/video/av33909503)|[发出逆上旋、逆下旋关键！](https://www.bilibili.com/video/av33843829)|[第1集：横拍握法](https://www.bilibili.com/video/av3598540)|[第2集：正手攻球的基本站位](https://www.bilibili.com/video/av3598551)|[第3集：正手攻球的动作要领](https://www.bilibili.com/video/av3602896)|
 
 | :------: | :------: | :------: | :------: | :------: |
-|[第4集：反手技术分析及基本站位](https://www.bilibili.com/video/av3615222)|[第5集：反手推拨的动作要领](https://www.bilibili.com/video/av3621698/)|
+|[第4集：反手技术分析及基本站位](https://www.bilibili.com/video/av3615222)|[第5集：反手推拨的动作要领](https://www.bilibili.com/video/av3621698/)|[第6.1集：反手横拨技术特点](https://www.bilibili.com/video/av3621874/)|[第6.2集：反手横拨全景示范](https://www.bilibili.com/video/av3615815/)|
 
 # 将结束的九月
 
