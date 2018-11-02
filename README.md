@@ -30,7 +30,10 @@
 |[第4集：反手技术分析及基本站位](https://www.bilibili.com/video/av3615222)|[第5集：反手推拨的动作要领](https://www.bilibili.com/video/av3621698/)|[第6.1集：反手横拨技术特点](https://www.bilibili.com/video/av3621874/)|[第6.2集：反手横拨全景示范](https://www.bilibili.com/video/av3615815/)|[第6.3集：马龙反手横拨动作讲解](https://www.bilibili.com/video/av3622099/)|
 
 | :------: | :------: | :------: | :------: | :------: |
-|[第6.4集：反手横拨技术要领](https://www.bilibili.com/video/av3629745/)|
+|[第6.4集：反手横拨技术要领](https://www.bilibili.com/video/av3629745/)|[第6.5集：反手横拨速成宝典](https://www.bilibili.com/video/av3638227)|[第6.6集：反手横拨纠错大全](https://www.bilibili.com/video/av3653758/)|[第7集：弧圈球技术的起源与发展](https://www.bilibili.com/video/av3660700)|[第8集：弧圈球技术特点分析](https://www.bilibili.com/video/av3680870/)|
+
+| :------: | :------: | :------: | :------: | :------: |
+|[]()|
 
 # 将结束的九月
 
