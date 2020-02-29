@@ -6,7 +6,6 @@
 
 <https://5yuino2.github.io/yuino/>
 
-<http://blog.yuino.ml/>
 
 这里是个丢日常的博客
 
